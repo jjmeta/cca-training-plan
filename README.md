@@ -1,0 +1,1 @@
+Free 7-day training plan for the Anthropic Claude Certified Architect – Foundations (CCA-F) exam. Covers all 5 exam domains with daily sessions, hands-on builds, Academy course sequence, and readiness checklists. Free to to download and use
